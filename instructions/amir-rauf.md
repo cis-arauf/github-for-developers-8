@@ -1,0 +1,5 @@
+- **Amir Rauf**
+- I'm from Round Rock, TX
+- I love italian food.
+- Landscape photography is one of my favorite hobby.
+- My favorite color is green.
